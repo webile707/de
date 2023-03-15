@@ -1,0 +1,10 @@
+https://www.mof.go.jp/pri/research/conference/indiaws/indiaws2020_02_01.pdf
+https://www.academia.edu/3179038/Writing_the_Digital_Economy_A_Summary_of_Research_and_Perspectives
+https://economy.spbstu.ru/userfiles/files/articles/2020/2/01_Metlyahin%2C-Nikitina%2C-Yarigin%2C-Orlova.pdf
+https://www.unescap.org/sites/default/d8files/event-documents/Sesson%203.%20Emerging%20trends%20digital%20economy.pdf
+https://www.epu.gov.my/sites/default/files/2021-02/Malaysia-digital-economy-blueprint.pdf
+https://pjms.zim.pcz.pl/api/files/view/886294.pdf
+https://dial.global/wp-content/uploads/2020/10/SmartAfrica-DIAL_DigitalEconomyInAfrica2020-v7_ENG.pdf
+https://diodeweb.files.wordpress.com/2017/08/diwkppr68-diode.pdf
+https://www.pwc.com/cl/es/publicaciones/assets/the-new-digital-economy.pdf
+https://unctad.org/system/files/official-document/der2021_en.pdf
